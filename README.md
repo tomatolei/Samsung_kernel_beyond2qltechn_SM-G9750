@@ -1,0 +1,1 @@
+# Samsung_kernel_beyond2qltechn_SM-G9750
